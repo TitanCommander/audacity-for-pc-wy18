@@ -1,4 +1,4 @@
-# 
+# Audacity for PC | Audacity for Windows custom Script: EQ & compression offers the most advanced Audacity for PC | Audacity for Windows script, with EQ and compression. Ideal for
 
 
 
